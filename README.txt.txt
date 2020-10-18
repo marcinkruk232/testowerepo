@@ -1,1 +1,0 @@
-skrypty w Julii
